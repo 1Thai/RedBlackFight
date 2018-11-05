@@ -1,4 +1,4 @@
-# 红黑互娱 隐私政策Privacy Policy
+# 闯关英雄 隐私政策Privacy Policy
 
 Privacy Policy
 The company respects and protects the privacy of all users who use the service. In order to provide you with more accurate and personalized services, we will use and disclose your personal information in accordance with this Privacy Policy. However, the company will treat this information with a high degree of diligence and prudence. Except as otherwise provided in this Privacy Policy, the Company will not disclose or provide such information to third parties without your prior permission. The Company will update this Privacy Policy from time to time. By agreeing to the Company's Service Use Agreement, you are deemed to have agreed to the entire content of this Privacy Policy. This Privacy Policy is an integral part of the Company's Service Use Agreement.
